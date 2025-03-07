@@ -1,1 +1,1 @@
-# CogNetLab.github.io
+We are bunch of cool people :p
